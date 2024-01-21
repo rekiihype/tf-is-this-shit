@@ -1,6 +1,7 @@
 # tf-is-this-shit
 
 ## ONLY RELATED TO BUDAK PF T21L
+### OPEN link.md FOR LINKS RELATED
 
 my wife below (real)
 
